@@ -1,1 +1,0 @@
-# Praegredia_GDP
